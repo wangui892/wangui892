@@ -12,9 +12,7 @@ The first computer "bug" was **literally** a bug! 🪲 In 1947, engineers workin
 - ⚡ Fun side project: automatic kitchen menu
 - 
 ## 📫 Connect With Me
-- [Portfolio](https://your-portfolio-link.com)
-- [LinkedIn](https://linkedin.com/in/your-profile)
-- [Twitter](https://twitter.com/your-handle)
+- instagram https://www.instagram.com/_koi__.miss/#
 
 ---
 
